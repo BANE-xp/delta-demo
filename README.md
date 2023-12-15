@@ -1,3 +1,3 @@
 # delta-demo
-HEHE Its just a prank!!
+HEHE Its prank!!
 hehe your are reading this! after you just pranked!!
